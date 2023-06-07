@@ -40,3 +40,9 @@
 ![Screenshot (68)](https://github.com/D-lang14/Web_Technology_Mini/assets/75472065/44ba83df-5645-482b-a5cc-62594f7c0428)
 
 ![Screenshot (65)](https://github.com/D-lang14/Web_Technology_Mini/assets/75472065/f059e894-74bc-4741-873f-98ae55f6596c)
+
+# You are good to go 
+# Try this website yourself 
+# Could edit on your work place
+# Enjoy learning
+> If any queries can ask me
